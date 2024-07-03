@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OmarSaadane
-- 👀 I’m interested in work in full stack development
+- 👀 I need full stack development work.
 - 🌱 I’m currently learning in 4 geeks
 - 💞️ I’m looking to collaborate on all company
 - 📫 How to reach me https://www.linkedin.com/in/omar-saadane-6308372a6/
